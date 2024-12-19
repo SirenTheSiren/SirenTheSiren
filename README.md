@@ -16,4 +16,4 @@ If you want to check out Hetzner, where my servers will be hosted, feel free to 
 
 
 ## My other links
-[My Linktree](linktr.ee/sirenthesiren)
+[My Linktree](https://linktr.ee/sirenthesiren)
