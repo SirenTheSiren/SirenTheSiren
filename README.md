@@ -13,3 +13,7 @@ If you want to check out Hetzner, where my servers will be hosted, feel free to 
 
 ## In case you want to support me
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/V7V013UPVX)
+
+
+## My other links
+[My Linktree](linktr.ee/sirenthesiren)
